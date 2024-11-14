@@ -1,12 +1,12 @@
----
+
 
 **Page 3: Nutrients for Hair Growth**
 
-Introduction
+**Introduction**
 
 To achieve rapid hair growth, it's essential to nourish your body with the right nutrients. Hair health starts from within, and certain vitamins and minerals play a significant role in strengthening hair and encouraging faster growth.
 
-Key Nutrients for Hair Growth
+**Key Nutrients for Hair Growth**
 
 **1. Biotin (Vitamin B7)**
 
