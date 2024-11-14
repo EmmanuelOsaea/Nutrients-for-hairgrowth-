@@ -123,9 +123,9 @@ To accomplish instant hair growth, it's necessary to enrich your body with the a
 
 **Balanced Diet:** Aim for  healthy diet rich in natural foods like vegetables, lean proteins, and healthy fats.
 
-**Supplements:** If your diet lacks these nutrients, contemplate taking a multivitamin or specific hair growth supplements (consult your healthcare provider first).
+**Supplements:** If your diet lacks these nutrients, contemplate taking a multi-micronutrients or a specialized hair growth supplements (consult your Medical provider first).
 
-**Hydration:** Water supports all cellular processes, including hair growth. Aim for at least 8 glasses a day.
+**Hydration:** Water supports all organic functions, including hair growth. Strive for at least 8 glasses a day.
 
 
 
